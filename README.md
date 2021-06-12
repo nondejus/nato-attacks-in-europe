@@ -1,1 +1,0 @@
-# nato-attacks-in-europe
